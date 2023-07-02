@@ -1,2 +1,2 @@
 # My website 
-Yes i forked it from chocopie lmfao
+Yes i forked it from chocopie lol
